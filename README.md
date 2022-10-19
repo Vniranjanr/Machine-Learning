@@ -1,8 +1,10 @@
 # Machine-Learning
 
 
-Video Link:
+Assignment 1 Video Link:
 https://youtu.be/xlCHC7iz89A
 
 Date:10/18/22
 Uploaded in-class assignment 2
+Assignment 2 video link:
+https://drive.google.com/file/d/1lKIztGlKUFM2oOYfY_KzD3vDMHInhwP2/view?usp=sharing
