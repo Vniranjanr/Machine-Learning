@@ -9,3 +9,7 @@ Uploaded in-class assignment 2
 
 Assignment 2 video link:
 https://drive.google.com/file/d/1lKIztGlKUFM2oOYfY_KzD3vDMHInhwP2/view?usp=sharing
+
+
+Assignment 3 video link:
+https://drive.google.com/file/d/1h_oZN9bgFzT34CD81AfCSwGjl9E52Trz/view?usp=sharing
