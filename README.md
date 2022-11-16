@@ -19,3 +19,6 @@ https://drive.google.com/file/d/1bZSUkO0VXTIgP1jBmwfAAEmVMRd5Gf7t/view?usp=share
 
 Assignment 5 video link:
 https://drive.google.com/file/d/1b7xeAM5hR0ZLKlbCBp_RTl8liE54UcoF/view?usp=share_link
+
+Assignment 6 video link:
+
